@@ -1,1 +1,1 @@
-loadScript('https://.js')
+loadScript('https://raw.githubusercontent.com/payocoder/krunkercheat/master/Iuejdjhfoeokihouiuekuui73829hjhekkkshfhguryu268296749628lljihkhkuieyiey4783odjgjwiryihdhgiie63jjihjhdjhskjdjgjhsjhfkuouwiheiy7n37383jbdjhwiu74738chcjhe73x—x——.js')
